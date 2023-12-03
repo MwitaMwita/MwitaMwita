@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MwitaMwita
+- 👋 Hi, I’m @Mwita Mwita
 - 👀 I’m interested in Supply Chain, Logistics and Information Technology
 - 🌱 I’m currently Working and learning Information Technology
 - 💞️ I’m looking to collaborate on Information Technology and Supply Chain and Transportation
